@@ -294,5 +294,12 @@ This experience reinforced that document encryption is only as strong as the pas
 **Oyeru Rachael Emalohi**
 
 **Cybersecurity Intern | Networkwalks | Batch B084D**
+# 👤 Author
+
+**Oyeru Rachael Emalohi**
+
+**Cybersecurity Intern | Networkwalks | Batch B084D**
+
+🔗 [LinkedIn](https://www.linkedin.com/in/oyeru-rachael-067a39253)
 
 ---
